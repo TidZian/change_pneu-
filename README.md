@@ -9,3 +9,6 @@ too many people sell resources Must stop their business
 
 
 start change_pneu
+
+
+my discord https://discord.gg/FUxcyGw
